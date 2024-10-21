@@ -1,1 +1,1 @@
-## Capston 2 Project Work
+## Capstone 2 Project Work
